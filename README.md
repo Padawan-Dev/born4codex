@@ -4,7 +4,8 @@ My name is Cleiton Lima
 
 I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
 
-### 🌍 "Quanto mais eu sei, mais eu sou" 🧠
+### " Doing the simple first" 
+            @Mike Krieger
 
 - 📍 From São Paulo
 
